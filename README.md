@@ -24,4 +24,4 @@ https://github.com/user-attachments/assets/983caf88-b54a-4d21-819c-d97dd978cc67
 
 Студент группы [иб-207б]
 
-[Каримов Асат]
+
